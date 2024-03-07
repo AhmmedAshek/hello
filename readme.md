@@ -1,3 +1,3 @@
 ~what is the motto of life?~
 **should there be a motto in life?**
-* why not, Ashek? *
+_why not, Ashek?_
